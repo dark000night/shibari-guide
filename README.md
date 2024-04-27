@@ -15,6 +15,8 @@ https://www.youtube.com/channel/UCnMdKRxb2RSEScpe9HCszIQ
 https://anatomiestudio.com/shibari-rope-videos/
 
 https://shibari.ph/resources/online-shibari-schools/
+
+https://www.youtube.com/@RopebyX
  
 ## Not Free
 
