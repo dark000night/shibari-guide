@@ -2,7 +2,7 @@
 
 **Disclaimer!!!** This compilation of links has not been verified or tested. Following the instructions for any of these resources involves inherent risks. It is crucial to perform your own due diligence before using any techniques described. Use at your own risk. Please note that I do not endorse these resources, and I assume no liability for any outcomes resulting from their use.
 
-## Free
+## Misc
 
 https://crash-restraint.com/
 
@@ -20,11 +20,29 @@ https://shibari.ph/resources/online-shibari-schools/
 
 https://www.youtube.com/@RopebyX
  
-## Not Free
+https://shibaristudy.com/ (not free)
 
-https://shibaristudy.com/
+https://www.shibariclasses.com/courses/ (not free)
 
-https://www.shibariclasses.com/courses/
+## The Rope Studio (Discord)
+
+Websites that offer online classes, live streams and/or online performances. Don't forget to check out the IG pages of these resources for more information, notifications and performances.
+
+- [Anatomie Studio](https://anatomiestudio.com/ "Anatomie Studio")  
+- [Christian Red](https://www.christian-red.co.uk/ "Christian Red") has a free [youtube channel](https://www.youtube.com/channel/UClgo4SmHb-g3t4vwKLUq2qA/videos "youtube channel")  
+- [Karada House](https://karada-house.de/ "Karada House") host live workshops
+- [Kinetik Speicher](https://kinetikspeicher.de/ "Kinetik Speicher") has really good free online tutorials
+- [Learn Shibari](https://www.learnshibari.com/ "Learn Shibari")  
+- [Remedial Ropes](https://www.remedialropes.com/ "Remedial Ropes") is an information website.
+- [Shay Tiziano](https://www.selfsuspend.com/home#intro "Shay Tiziano") is the writer of Tying and Flying: Bondage for self-suspension.
+- [The Space 2](https://www.thespace2.com/ "The Space 2")  
+- [VoxBody Studio](https://www.voxbody.com/ "VoxBody Studio")
+
+[Nerves & Circulation - ropestudy.com](https://ropestudy.com/courses/101/lessons/reducing-risk/topic/nerves/) & [Day 50: Upper Limb Nerves - rope365.com](https://rope365.com/nerves/)
+
+[Rope Material Selection - crash-restraint.com](https://crash-restraint.com/ties/2)
+
+[The Rope Bottom Guide - theropebottomguide.com](https://theropebottomguide.com/wp-content/uploads/2018/11/rope_bottom_guide.pdf)
 
 ## Books
 
