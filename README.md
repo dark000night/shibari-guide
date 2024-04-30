@@ -24,6 +24,17 @@ https://shibaristudy.com/ (not free)
 
 https://www.shibariclasses.com/courses/ (not free)
 
+## Rope 365 - Free Videos Resources
+
+https://rope365.com/videos/
+
+-   [Basic rope bondage videos by Yukinaga Max and Tina](https://vimeo.com/yukinaga) -- A collection of well-made videos that covers the Japanese style basics.
+-   [Crash Restraints Videos by Topologist and RachelKi](https://vimeo.com/crashrestraint) -- Large collection of tutorial videos for various ties. Interesting sexy bondage and suspension.
+-   [Rope tutorials by MrLuckiesRope](https://www.youtube.com/channel/UCmWzk9oX2dPI15CLyefxmYA/featured) -- Massive amount of videos of Japanese style rope bondage tutorials including structures and suspension.
+-   [Rope tutorials by BondageTuition](https://www.youtube.com/@BondageTuition) -- Various tutorials, sessions, and other blogging videos
+-   [Shibari Rope Videos by Anatomie Studio](https://anatomiestudio.com/shibari-rope-videos/) -- Inspirational videos of various ties. 
+-   [Kinbaku](https://vimeo.com/42430658) -- Documentary featuring Osada Steve, Asagi Ageha, Yukimura Haruki, Kitagawa Shuhei, Hajime Kinoko etc.
+
 ## The Rope Studio (Discord)
 
 Websites that offer online classes, live streams and/or online performances. Don't forget to check out the IG pages of these resources for more information, notifications and performances.
