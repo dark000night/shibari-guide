@@ -1,5 +1,7 @@
 # Shibari Guide
 
+**Disclaimer!!!** This compilation of links has not been verified or tested. Following the instructions for any of these resources involves inherent risks. It is crucial to perform your own due diligence before using any techniques described. Use at your own risk. Please note that I do not endorse these resources, and I assume no liability for any outcomes resulting from their use.
+
 ## Free
 
 https://crash-restraint.com/
